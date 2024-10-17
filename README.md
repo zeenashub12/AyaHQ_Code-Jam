@@ -1,1 +1,0 @@
-# AyaHQ_Code-Jam
